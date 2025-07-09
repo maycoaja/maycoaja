@@ -1,4 +1,4 @@
-### Halo semuanya hahaha
+### Halo semuanya 😁
 
 <!--
 **maycoaja/maycoaja** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
